@@ -1,1 +1,2 @@
-# how-many-slices-in-a-12-inch-pizza
+# How-many-slices-in-a-12-inch-pizza?
+The number of slices in a 12-inch pizza can vary depending on how it is cut, but it is typically divided into 8 slices. This is a common practice in many pizzerias and restaurants. However, some establishments may cut the pizza into 6 larger slices, while others may cut it into smaller slices, resulting in more than 8 pieces. If you're ordering a 12-inch pizza, then 1st calculate the person and figure out [how many slices in a 12 inch pizza](https://pizzavitals.com/how-many-slices-are-in-a-12-inch-pizza/) it's a good idea to ask the specific pizzeria how they typically slice their pizzas to get a more accurate answer.
